@@ -1,2 +1,2 @@
 # youtube-ip
-later when we finish it.
+We wil post a description later when we finish it.
